@@ -1,1 +1,1 @@
-# malaysia-earthquake
+# Popular News on detik.com
